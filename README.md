@@ -26,6 +26,5 @@ Welcome to my GitHub profile! I'm passionate about leveraging data analytics wit
 ## Let's Connect!
 
 Email :- abhishekrinkaj2605@gmail.com
-contact :- 9695833428
 
 Feel free to explore my repositories and reach out for collaboration abhishekrinkaj2605@gmail.com opportunities or just to say hi! 😊
